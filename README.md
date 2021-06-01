@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jzimozi
+- 👀 I’m interested in research and development + Innovation.
+- 📫 How to reach me jenie@zimozi.co 
